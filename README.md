@@ -41,7 +41,7 @@ I mostly work with:
 
 ### 🌐 Find Me
 
-- 🔗 Website: [gabrielebianco.it](https://getgabriele.it) *(coming soon, stay tuned!)*
+- 🔗 Website: [gabrielebianco.it](https://getgabriele.it)
 
 ---
 
